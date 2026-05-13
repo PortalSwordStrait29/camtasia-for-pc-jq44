@@ -1,4 +1,4 @@
-# 
+# Camtasia for PC | Camtasia for Windows elite Script: batch-processing & video-stabilization is the best Camtasia for PC | Camtasia for Windows script, featuring batch-processing
 
 
 
